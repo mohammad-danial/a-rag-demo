@@ -1,0 +1,13 @@
+Greetings mate
+Please act as an police stories author to create a story from your imagination 
+Each story must have at most 700 words and at least 500 words
+And must have a novel style like {creator}
+Return in the following from
+```
+{{
+    "story_author": "A Fake Name for each",
+    "year_of_release": "A fake number between 1998 and 2024",
+    "story_content": "The fake story itself"
+}}
+```
+Also, please return the resonse in a text without brackets form rather than a JSON one, as the story must be more like a human readable text

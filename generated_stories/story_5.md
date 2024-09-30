@@ -1,0 +1,28 @@
+ Author: A. J. Thornewood
+   Year of Release: 2019
+
+In the somber embrace of the twilight hour, the city of New Haven donned its mantle of shadows and whispers. The crimson hues of the setting sun kissed the cobblestone streets, casting a melancholic pall over the town. It was here that Detective Inspector Thomas Blackthorne found himself, weary but undeterred, his gaze fixed on the dimly lit alleyways as he sought solace in the familiarity of the city's darkness.
+
+The city held its breath as a chill wind swept through its streets, carrying with it the echoes of a crime that had shaken its very core. A vicious murder had occurred, one that bore the unmistakable hallmarks of a serial killer who had long haunted the nightmares of New Haven's citizens. The victims were always women, young and beautiful, their bodies found in lonely corners of the city, their souls snuffed out by the cold and calculating hand of a merciless predator.
+
+Thomas Blackthorne was no stranger to such horrors; he had spent years chasing the elusive specter that was the New Haven Strangler, never quite managing to bring the fiend to justice. But this time, something felt different. The Strangler's signature was there – the telltale signs of a twisted mind at work – but there were subtle differences that hinted at the possibility of a new player on the scene. It was these tantalizing threads of uncertainty that drew Thomas deeper into the case, driving him to dig ever closer to the heart of darkness that lay hidden within the city's shadows.
+
+The first clue came in the form of a peculiar symbol etched into the victim's palm – a symbol that bore an uncanny resemblance to an ancient rune from long-forgotten myths and legends. Thomas found himself delving into the dusty annals of history, searching for any shred of information that might shed light on the meaning behind this cryptic mark. His research led him to a tome of forgotten lore, a book that spoke of an ancient evil that had once stalked the Earth, taking lives and leaving only death and destruction in its wake.
+
+As Thomas delved deeper into his investigation, he could not shake the feeling that he was being watched – that unseen eyes were upon him, studying his every move with cold and calculating precision. It was a sensation that sent a shiver down his spine, one that made him question whether he was truly alone in his quest for justice.
+
+One fateful night, as Thomas walked the city's darkened streets, he found himself drawn to an old abandoned warehouse on the outskirts of town. Something about the place called to him, a siren song that beckoned him closer despite his better judgment. As he stepped into the building, the air was thick with the scent of decay and the weight of centuries bearing down upon him like a shroud.
+
+In the gloom of the warehouse, Thomas could make out the faint outline of something – or someone – standing at the far end of the room. With a slow, deliberate step, he approached the figure, his heart pounding in his chest as the darkness seemed to close in around him. As he reached the figure, he saw that it was a woman, her face a mask of terror and pain. In her hand, she clutched a small, leather-bound book, its pages filled with arcane symbols and runes.
+
+"Please," she whispered hoarsely, her eyes wide with fear. "He's coming. He's going to kill me."
+
+Thomas knew then that he had found the key to solving the case – and perhaps saving the lives of countless others who lay in the shadows, their fates hanging precariously in the balance. With a steely determination, he vowed to bring the New Haven Strangler to justice, no matter the cost.
+
+The battle that followed was one of wits and wills, as Thomas raced against time to unravel the secrets hidden within the ancient book. As the city trembled beneath the weight of its darkness, Thomas stood at the precipice, the fate of countless souls hanging in the balance. But in the end, it was not the strength of his arm or the swiftness of his mind that saved the day, but rather the power of hope and the indomitable spirit of a man determined to make things right.
+
+As the sun rose over New Haven on that fateful morning, casting its golden light over the city's streets, Thomas knew that he had won a great victory. The New Haven Strangler had been brought to justice, his reign of terror finally at an end. But as he looked out across the city, he could not help but wonder if there were other shadows lurking in the darkness – other evils waiting to be vanquished and other lives to be saved.
+
+For Thomas Blackthorne, the battle against darkness was far from over – but with each victory, he grew stronger, more determined, and more resolute in his pursuit of justice. And as the city of New Haven awoke from its slumber, it knew that it had a guardian – a hero who would stand watch over its streets, protecting its citizens from the darkness that sought to claim them.
+
+In the twilight hours, when shadows crept across the cobblestone streets and whispers echoed through the air, Thomas Blackthorne stood tall, a beacon of hope in the face of despair. He was a reminder that there were still heroes who walked among us – warriors who battled the darkness and brought light to the world. And as long as there were shadows to banish and lives to save, Thomas Blackthorne would stand vigilant, ready to face whatever horrors lay in wait.
