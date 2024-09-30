@@ -46,7 +46,7 @@ Inspired from `pixegami/langchain-rag-tutorial`
 
 ###  Prerequisites
 
-**Python**: `version <=3.11`
+**Python**: `version >=3.11` <br>
 **Ollama**: You need to have Ollama installed and running with llama3
 
 
@@ -83,7 +83,7 @@ To run the project, execute the following command:
 ##  Project Roadmap
 
 - [X] **`Task 1`**: <strike>Create the basic chat in the terminal level</strike>
-- [ ] **`Task 2`**: Add a more interactive waty to demo
+- [ ] **`Task 2`**: Add a more interactive way to demo
 - [ ] **`Task 3`**: Add actions and unit-test
 
 ---
